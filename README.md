@@ -1,1 +1,0 @@
-# whynotstrong.github.io
